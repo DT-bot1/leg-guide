@@ -1,2 +1,1 @@
-# 11-St.Patrick
-Dwayne Gyver O. Tuliao
+# Dwayne Gyver O. Tuliao
